@@ -1,0 +1,3 @@
+- Hi,👋  I’m @yoniShewa
+- 👀 I’m interested in anything in Tech and strategic games
+- We can connect to solve and develop cool things ✨
